@@ -4,7 +4,7 @@ Inspired by those cool shops overseas where you can shop without waiting in line
 
 It's not the fanciest out there, but it gets the job done! And guess what? It's just the beginning! We've got big plans for the future.
 
-Got questions or ideas? Reach out! Let's make shopping simpler, together!
+Got questions or ideas? Reach out! Let's make shopping simpler, together!!
 
 
 
